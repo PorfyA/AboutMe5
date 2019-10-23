@@ -2,14 +2,6 @@
 #
 **Adam Porfiris**
 
-Lehigh University Box 1071
-
-4 Farrington Square
-
-Bethlehem, PA 18015
-
-973-309-1910 | [adp223@lehigh.edu](mailto:adp223@lehigh.edu)
-
 **Education**
 
 **Lehigh University, Bethlehem, PA**                                                                             **May 2023**
